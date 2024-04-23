@@ -1,1 +1,1 @@
-# Testing_final_project_1
+# Testing_final_project_1_Lenka_Sedlackova
